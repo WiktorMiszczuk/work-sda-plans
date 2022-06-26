@@ -1,0 +1,5 @@
+Lista rzeczy do zrobienia: 
+-
+-
+-
+-
